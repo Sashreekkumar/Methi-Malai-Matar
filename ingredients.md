@@ -1,0 +1,2 @@
+Ingredients:
+cashew(100g), fenugreek leaves(three cups), green peas(1 cups), green chillies(3), cardomonn powder(1/2 teaspoon), Ghee(1 table spoon), ginger garlic paste(1 teaspoon), onion( 2 medium size) 

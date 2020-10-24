@@ -1,0 +1,1 @@
+Methi Malai Matar is a rich dish because it has lot of cream andd cashews. It is perfect for special occasions. It gives you a sense of authenticity of the cuisine of North India and its diversity.  
